@@ -1,4 +1,6 @@
 ### Hi there 👋
+I am the Chick who try to be GOLDEN Chick!!!
+🐤🐤🐤
 
 <!--
 **NRdeARK/NRdeARK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
